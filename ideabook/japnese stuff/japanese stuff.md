@@ -1,5 +1,4 @@
-# 会津塗 #
-## 黒6.5 三段重 菊桐 ##
+# 会津塗 黒6.5 三段重 菊桐
 
 https://kougeihin.jp/shop/7100840600071/
 
@@ -17,3 +16,24 @@ https://kougeihin.jp/shop/7100840600071/
 
 
 
+# 壺屋焼 親子玉乗シーサー（大）青 #
+
+https://kougeihin.jp/shop/7100833600170/
+
+宝の意味を持つ玉と子どもを抱いたシーサー
+
+寸法：13cm×10cm×高さ14cm 13cm×9cm×高さ14cm
+付属品：なし
+生産者： 湧田陶器
+
+![7100833600170](E:\ideabook\japnese stuff\7100833600170.jpg)
+
+![7100833600170-02](E:\ideabook\japnese stuff\7100833600170-02.jpg)
+
+![7100833600170-03](E:\ideabook\japnese stuff\7100833600170-03.jpg)
+
+![7100833600170-05 (1)](E:\ideabook\japnese stuff\7100833600170-05 (1).jpg)
+
+![7100833600170-05](E:\ideabook\japnese stuff\7100833600170-05.jpg)
+
+![7100833600170-06](E:\ideabook\japnese stuff\7100833600170-06.jpg)
